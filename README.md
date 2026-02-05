@@ -2,3 +2,4 @@
 
 Jorge Rivera
 Nathalia Mejia
+Isaura Banguera 
